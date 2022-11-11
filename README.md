@@ -1,5 +1,5 @@
-YouTube giveaway 
+Prime video giveaway 
 
 Send the secret code here @Jasmeetkaur
 
-The code is :- YoutubeGiveawayPJTYou
+The code is :- PrimevideoGiveawayQwerty
